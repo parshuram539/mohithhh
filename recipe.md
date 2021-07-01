@@ -1,0 +1,2 @@
+in a small saucepan,over medium-high heat bring the half and half and the vanilla bean to the scalding point 
+Remove from heat take out the vanilla bean and scrape the seeds from the bean with the back of a knife ,and mix the seeds back into the half and half meanwhile in a staninless bowlbeat the egg milk
